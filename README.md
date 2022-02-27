@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KIRILLAND78
-- 📫 You can reach me in discord: Kiri#0670
+- 📫 You can reach me in discord: kind_ballistic#6412
                           
 
 <!---
