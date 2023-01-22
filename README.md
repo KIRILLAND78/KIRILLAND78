@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KIRILLAND78
 - 📫 You can reach me in
-- discord: kind_ballistic#6412
+- discord: kirand_tech#6412
 - vk.com: https://vk.com/kirikirikaz
                           
 
